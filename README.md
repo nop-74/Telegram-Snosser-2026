@@ -48,7 +48,8 @@
 - P.S
 - Не советую просто так прибегать к сносу аккаунтов,если человек не виноват,не нужно этого делать!! это подло и низко !но есть случаи когда это неизбежно!!
 
-## купить snooser Telegram
+## купить snooser Telegram (ОПЛАТА СПБ по QR коду)
+![Alt text](https://github.com/nop-74/Telegram-Snosser-2026/blob/main/sake.png)
 
 ##  [НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad)
 -  
